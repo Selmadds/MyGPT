@@ -1,1 +1,1 @@
-My GPT
+Heisann, dette er nytt
